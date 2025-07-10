@@ -2,7 +2,7 @@
 If you're thinking about adding a little sparkle to your smile, tooth gems might be the perfect accessory. Before you book your appointment or place an order, here’s everything you need to know about what a tooth gem is, how much it costs, and how to choose the best one for your smile.
 
 ## What Is a Tooth Gem?
-A tooth gem is a small jewel that is safely bonded to the surface of your tooth using [dental adhesive]. It can be applied by a dentist, hygienist, tattoo artist, or beauty professional with proper training. When done correctly, [tooth gems](https://www.selfgem.com/en/collections/tooth-gems) are completely safe, do not cause permanent damage, and can be removed easily without pain.
+A tooth gem is a small jewel that is safely bonded to the surface of your tooth using dental adhesive. It can be applied by a dentist, hygienist, tattoo artist, or beauty professional with proper training. When done correctly, [tooth gems](https://www.selfgem.com/en/collections/tooth-gems) are completely safe, do not cause permanent damage, and can be removed easily without pain.
 
 They come in a variety of materials and designs, including solid gold, real diamonds, sapphires, and Swarovski crystals. These gems are made for oral use and are free from harmful metals like lead or nickel. With the right care, a tooth gem can last for months or even years.
 
